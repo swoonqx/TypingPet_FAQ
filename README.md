@@ -1,1 +1,0 @@
-# TypingPet_FAQ
